@@ -1,6 +1,6 @@
-<br>禁漫网最新地址（03/26更新）
+<br>禁漫网最新地址（04/16更新）
 
-<br>免翻墙入口：https://jmw1.com/
+<br>免翻墙入口：https://jmw9.com/
 <br>永久入口需翻墙：https://jmwacg.com/
 <br>官方免费Q群：http://e.rqvaigpfj69.cn/s/1ZYO
 <br>————————————————————-
